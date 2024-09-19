@@ -8,3 +8,8 @@ A game I enjoyed playing is Super Mario Party. I enjoy the battle between family
 # September 13th, 2024
 
 I think the main thing that was unclear was whether or not we were able to keep the file public or private and still have you able to check the journal.
+
+
+# September 19th, 2024
+
+This is a free week.
