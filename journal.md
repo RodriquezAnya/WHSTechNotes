@@ -28,3 +28,10 @@ A career pathway that interests me is cyber security. My main responsibilities w
 # October 18th, 2024
 
 Coding can improve problem solving skills due to the fact that in order to be good at coding, you must know what to do or how to fix any problems that happen in your code. This can be a useful skill because in life there are always problems that we face and need to know how to solve. Understanding coding can help in other pathways because of how many different types of skills that are useful in any job. 
+
+
+# October 21st, 2024
+
+Ai is useful due to many different factors. One of the main factors is its ability to find solutions to many different types of problems. AI is able to find solutions for any type of problems and come up with more creative solutions that would take a whole team of people to come up with. This makes it easier to come up with solutions and solve problems faster.
+
+Some potentials risk of AI is people overusing it. Ai is helpful in many ways so students may see it as an easy way to get work done with minimal effort. This can be harmful to a students ability to learn. This could also turn students to become lazy when it comes to school and not put in the work or effort they are capable of doing.
