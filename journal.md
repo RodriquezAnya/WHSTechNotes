@@ -35,3 +35,25 @@ Coding can improve problem solving skills due to the fact that in order to be go
 Ai is useful due to many different factors. One of the main factors is its ability to find solutions to many different types of problems. AI is able to find solutions for any type of problems and come up with more creative solutions that would take a whole team of people to come up with. This makes it easier to come up with solutions and solve problems faster.
 
 Some potentials risk of AI is people overusing it. Ai is helpful in many ways so students may see it as an easy way to get work done with minimal effort. This can be harmful to a students ability to learn. This could also turn students to become lazy when it comes to school and not put in the work or effort they are capable of doing.
+
+
+# November 18th, 2024
+
+Technology has made food more affordable and accessable to the public due to how much more food can be grown at onced compared to if it was just people doing it on there own. With technology, we have the ability to plant more food and be able to harvest more at once, then deliver it to grocery stores. This makes it easier for the average public to be able to get the food they need to survive.
+
+
+# December 2nd, 2024
+
+I think VR can impact and currently impacts people lives based on the different programs available to the public. With the many new developments in not only coding but with the different programs used withing VR, VR has impacted more people lives. The main example of this is with the different games or programs for working out or getting excercise. There are so many programs that make getting excersise easier to stay motivated and have fun with the workout. Something that excites me with VR is what else is to come to it and how much more it will impact our daily lives. An ethical consideration that would need to be addressed would be on whether having the headset on for so long is as good for our health as it is, even if we are using it for a program that helps you workout. 
+
+
+
+
+
+
+
+
+
+
+
+
