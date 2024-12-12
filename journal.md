@@ -47,6 +47,9 @@ Technology has made food more affordable and accessable to the public due to how
 I think VR can impact and currently impacts people lives based on the different programs available to the public. With the many new developments in not only coding but with the different programs used withing VR, VR has impacted more people lives. The main example of this is with the different games or programs for working out or getting excercise. There are so many programs that make getting excersise easier to stay motivated and have fun with the workout. Something that excites me with VR is what else is to come to it and how much more it will impact our daily lives. An ethical consideration that would need to be addressed would be on whether having the headset on for so long is as good for our health as it is, even if we are using it for a program that helps you workout. 
 
 
+# December 12th, 2024
+
+The term brain rot means to be so obsorbed in social media and the latest slang that it is all you tslk sbout or mention. I feel digital madia has made both a negative and positive impact on societ. On opne hand it has inroduced a lot of new thngs to society and taught people many different things.
 
 
 
