@@ -52,6 +52,10 @@ I think VR can impact and currently impacts people lives based on the different 
 The term brain rot means to be so obsorbed in social media and the latest slang that it is all you tslk sbout or mention. I feel digital madia has made both a negative and positive impact on societ. On opne hand it has inroduced a lot of new thngs to society and taught people many different things.
 
 
+# December 19th, 2024
+
+Yes, I am looking foward to winter break and the holidays.
+
 
 
 
