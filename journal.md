@@ -57,7 +57,9 @@ The term brain rot means to be so obsorbed in social media and the latest slang 
 Yes, I am looking foward to winter break and the holidays.
 
 
+# January 9th, 2025
 
+Something I enjoyed from last semester was the lessons and the research I would do for the different journal entries. There isn't anything specific I would like to earn. I am not interested in any particular certification.
 
 
 
