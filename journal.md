@@ -62,7 +62,9 @@ Yes, I am looking foward to winter break and the holidays.
 Something I enjoyed from last semester was the lessons and the research I would do for the different journal entries. There isn't anything specific I would like to earn. I am not interested in any particular certification.
 
 
+# January 17th, 2025
 
+I think this shift could be a good or a bad thing. I do think AI will enhance productivity and enhance limits but could alsolimit them for AI being able to do more things than humans can. I would prepare myself to be able to be flexible with things changing.
 
 
 
