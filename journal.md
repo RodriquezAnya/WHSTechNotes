@@ -67,4 +67,40 @@ Something I enjoyed from last semester was the lessons and the research I would 
 I think this shift could be a good or a bad thing. I do think AI will enhance productivity and enhance limits but could alsolimit them for AI being able to do more things than humans can. I would prepare myself to be able to be flexible with things changing.
 
 
+# January 22nd, 2025
+
+I think the government uses this data collected by citizens to solve different nationwide problems as they see fit. They might also use the data within major brands and companies to see exact;y what consumers like. Both of these reasons are the main reason I believe that companies or the government should have access to peoples dats. Any other reason wouldnt be something I see as a prioity within having peoples data.
+I think companies, such as tiktok, could continue running globally by creating more security measures. These measures would be to properly insure that peoples data arent being used in ways that we would not approve of. They can do this by creating some kind of system to ensure that the data the app has access to won't be spread around. This would also ensure that the app doesn't have any data that was not shared woth the app in the first place or that the consumer doesnt know about it.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
