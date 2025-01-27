@@ -73,7 +73,13 @@ I think the government uses this data collected by citizens to solve different n
 I think companies, such as tiktok, could continue running globally by creating more security measures. These measures would be to properly insure that peoples data arent being used in ways that we would not approve of. They can do this by creating some kind of system to ensure that the data the app has access to won't be spread around. This would also ensure that the app doesn't have any data that was not shared woth the app in the first place or that the consumer doesnt know about it.
 
 
+# January 27th, 2025
 
+Name          Car           Mistake
+Jimmy        Civic          Hole in gas tank
+Kayla        Sierra         Fixed wrong problem
+Bart         Corolla        Stains on carpet
+Harrison     Forester       Oil cap off
 
 
 
