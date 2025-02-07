@@ -82,7 +82,10 @@ Bart         Corolla        Stains on carpet
 Harrison     Forester       Oil cap off
 
 
+# February 5th, 2025
 
+Technology can provide safety and help in aviation when flying by doing many different things. A main way is with navigation especialy when finding a certain location or just traveling. Navigation helpps a pilot figure out where they need to go and how to get there. Having this technology not only makes a pilot job easier with finding the fastest way to get somehwere, but they can also use this to find the safeest way especially with the amount of fuel they have at once.
+Another important way technology helps is communication while in the air. Being able to communicate with towers and the main control tower to find out if anything is affecting the travel pathway, and also weather. Knowing what is happening on land while being in the air can help ensure the safety of not only yourslef but the people on land as well. Making sure that there is a safe place to land and that something doesn't appeasr that you arent aware of appears in your travel path is important if you want to stay safe. The technology used to communicate between you and the people on land could be one of the most important pieces of technology available when traveling in the air.
 
 
 
