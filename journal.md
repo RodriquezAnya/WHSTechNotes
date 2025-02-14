@@ -88,8 +88,14 @@ Technology can provide safety and help in aviation when flying by doing many dif
 Another important way technology helps is communication while in the air. Being able to communicate with towers and the main control tower to find out if anything is affecting the travel pathway, and also weather. Knowing what is happening on land while being in the air can help ensure the safety of not only yourslef but the people on land as well. Making sure that there is a safe place to land and that something doesn't appeasr that you arent aware of appears in your travel path is important if you want to stay safe. The technology used to communicate between you and the people on land could be one of the most important pieces of technology available when traveling in the air.
 
 
+# February 14th, 2025
 
-
+Shape         color         number
+Triangle      Purple        4
+Circle        Green         7
+Squre         Yellow        5
+Hexagon       Brown         6
+Octogon       Red           3
 
 
 
