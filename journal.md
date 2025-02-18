@@ -98,6 +98,9 @@ Hexagon       Brown         6
 Octogon       Red           3
 
 
+# February 18th, 2025
+
+Something interesting I learned is how music and movies can effect people in different ways. Certain songs can get people to go farther than they ever been before especially when running. Along with this certain movies can make people realize something they went through was not normal.
 
 
 
