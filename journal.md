@@ -103,6 +103,15 @@ Octogon       Red           3
 Something interesting I learned is how music and movies can effect people in different ways. Certain songs can get people to go farther than they ever been before especially when running. Along with this certain movies can make people realize something they went through was not normal.
 
 
+# March 3rd. 2025
+
+Name        Power         Challenge
+Zara        Telekenisis   Secure Building
+Aether      Weather       Assassination
+Thorne     Invisibility   Underwater
+Silver    Mind Control    Stolen goods
+Tangier   Shapeshifting   Extract Prisoner
+
 
 
 
