@@ -103,7 +103,7 @@ Octogon       Red           3
 Something interesting I learned is how music and movies can effect people in different ways. Certain songs can get people to go farther than they ever been before especially when running. Along with this certain movies can make people realize something they went through was not normal.
 
 
-# March 3rd. 2025
+# March 3rd, 2025
 
 Name        Power         Challenge
 Zara        Telekenisis   Secure Building
@@ -113,7 +113,10 @@ Silver    Mind Control    Stolen goods
 Tangier   Shapeshifting   Extract Prisoner
 
 
+# March 20th, 2025
 
+Over spring break I mainly used Social media like TikTok and Instagram. I used these to entertain myself, talk to friends, and do research on future careers.For the most part I was texting friends and just talking to differen people to see how their break was going. I used instagram and the internet to get information about the military.
+I mainly was reserching what opportunities I would have with the Army and what I need to do to get ready for basic. This example shows how the problem solving skills used in coding can be used with different kinds of techknowlegy. I was able to use the internet to answer question I had about the pathway I want to take in life career wise. 
 
 
 
