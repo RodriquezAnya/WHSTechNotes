@@ -120,6 +120,22 @@ I mainly was reserching what opportunities I would have with the Army and what I
 
 
 
+# March 24th, 2025
+
+I believe that Ai-Driven predictions add onto the excitements when trying to predict who the winner is. I believe that this not only makes the game more unpredictable due to the fact that sometimes AI gets there predictions worng and they end up predicting the opposite of what they want. Along with this factor, it makes the stakes higher due tto people using AI predictions as a way on how they want to bet money or similar types of betting. Lastly, these can create friendly competeitons between friends or coulleugs based on who they vote for or bet against using the AI program.
+The roles that not only social media, but also streaming services play is makes these games and events available to more people all over the world. These tools let people that live hours away be able to experience the fun adn excitement of the game as if they were actually there. Along with this, they are able to see more events and more thing that are happening at the same time all from the safety and comfort of their home. Lastly, many fans have lives and responsibilities they aren't able to leave behind no matte rhow big of a fan they are. With social media and streaming seervices, it gives them the opportunity to enjoy the events while still being able to take care of the people or things that need to be taken care of.
+
+
+# March 31st, 2025
+
+I will answer in email.
+
+
+# April 7th, 2025
+
+I think and AI tutor would be helpful to many people. I think this would be a good way for many people ,especially those whoe don't like to ask for help, to find a way that works for them in order to sharpen up on certain subjects or even learn something new. Along with this, the AI program could learn to adapt to a way that fits best for each individual person. The AI would find a way that helps each individual person find a study technique that would not only keep the person wanting to learn, but also keep they consistent in learning and studying for major test such as the STAAR.
+For me personally, the best feature would be something to keep me wantig to learn and stay productive and active within my studies. I personally would say i wouldn't use AI to study. I say this because I am someone who isn't good at studying in general, let alone stayong on top of work. I feel the only way I would be able to use AI to study is if there was a way to keep me hooked or interested in staying consistent with studying.
+
 
 
 
