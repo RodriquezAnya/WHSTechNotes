@@ -136,9 +136,9 @@ I will answer in email.
 I think and AI tutor would be helpful to many people. I think this would be a good way for many people ,especially those whoe don't like to ask for help, to find a way that works for them in order to sharpen up on certain subjects or even learn something new. Along with this, the AI program could learn to adapt to a way that fits best for each individual person. The AI would find a way that helps each individual person find a study technique that would not only keep the person wanting to learn, but also keep they consistent in learning and studying for major test such as the STAAR.
 For me personally, the best feature would be something to keep me wantig to learn and stay productive and active within my studies. I personally would say i wouldn't use AI to study. I say this because I am someone who isn't good at studying in general, let alone stayong on top of work. I feel the only way I would be able to use AI to study is if there was a way to keep me hooked or interested in staying consistent with studying.
 
+# May 19th, 2025
 
-
-
+I am ready for summer to be out of school and hang out with friends. My main goal is to start college applications and work out more.
 
 
 
