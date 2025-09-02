@@ -141,6 +141,11 @@ For me personally, the best feature would be something to keep me wantig to lear
 I am ready for summer to be out of school and hang out with friends. My main goal is to start college applications and work out more.
 
 
+# September 2nd, 2025
+
+My thoughts on the new phone policy is that it isn't as bad as it originally seemed to be. I would like it if we could atleast use phones at lunch but during class I think it is a good thing.I have definitely been able to focus a lot more in class and have been able to keep myself ahead on my classes. A main benefit I have seen from it is students are more social and creative without the devices. Since we can't just be on our phones or have headphones on all day we are forced to socialize more with the people around us. I say overall while it would be nice to be on our phones at lunch, I think the phone ban is working out better than most people thought it would.
+
+
 
 
 
