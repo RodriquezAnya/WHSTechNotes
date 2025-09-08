@@ -147,7 +147,9 @@ My thoughts on the new phone policy is that it isn't as bad as it originally see
 
 
 
+# September 8, 2025
 
+I want to pursue a career in nuerology within cognitive and behavorial within children. Computer science code and programs can influence this job in many different way. The main way being to help scan the brains and discover what each thing thats happening actually means and how it effects the child. Using the data collected from these codes and programs can be used to better help and understand what the child is going through. Over all, computer science and code will be a massive part is my future career.
 
 
 
