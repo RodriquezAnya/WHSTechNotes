@@ -152,7 +152,9 @@ My thoughts on the new phone policy is that it isn't as bad as it originally see
 I want to pursue a career in nuerology within cognitive and behavorial within children. Computer science code and programs can influence this job in many different way. The main way being to help scan the brains and discover what each thing thats happening actually means and how it effects the child. Using the data collected from these codes and programs can be used to better help and understand what the child is going through. Over all, computer science and code will be a massive part is my future career.
 
 
+# September 15, 2025
 
+The challenge that is described is to create a way that AI can be useful in real world experiences like education, medical reasons, and others. I think a good way that AI can help within education is helping the student understand why the answer for something they searched is that answer. When most students use AI to help answer something, they just scroll to the answer they need but dont actually learn anything. If a student would be ofrced to learn by answering questions and what they read in order to find thee actual answer they originally needed then it would help students learn while easily finding a certain answer. Along with this, this would help better develop students reading with getting snwers they need and would cause them to learn other things that could possible answer other questions thye might have had to search.
 
 
 
