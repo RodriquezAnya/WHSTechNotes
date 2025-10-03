@@ -161,3 +161,7 @@ The challenge that is described is to create a way that AI can be useful in real
 
 While some see IKEA's virtual store on Roblox as a good way to engage with new generations, paying real money for virtual work could be a bad idea for the future of jobs. Evidence shows this lessens traditional work roles by assigning real wages to small, low-impact digital tasks that lack the important skills needed in retail jobs. Essentially, this trend could normalize a future where employees are paid for labor with no physical or mental skills, potentially destroying the value of meaningful interaction and  real-world labor. Along with this, it introduces the risk of exploitation by creating competition for limited, low-skill roles, as shown by over 178,000 people applying for just 10 spots in IKEA's Roblox game. This indicates a unbalacenced demand for these easily accessible jobs, which could drive down wages and dilute job quality in the future. Ultimately, while innovative, this blurring of gaming and employment may lower expectations for both work and career development.
 This responce used AI
+
+# September 30, 2025
+
+The phrase “6,7” comes from a song, I don't know who it is by, where he says this phrase. Since the release this phrase has become a popular meme. In my opinion, this meme reminds me of the 21 memes. It is basically just a number or numbers that people found funny  to where they continued to repeat them. The numbers don’t have any actual meaning.
